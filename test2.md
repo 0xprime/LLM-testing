@@ -1,4 +1,4 @@
-# Bears
+# Should Bears Eat Honey
 
 Dietary Balance: Bears are omnivores, requiring a balanced diet to maintain health. Overconsumption of honey can lead to nutritional imbalances, disrupting their intake of essential nutrients found in a more varied diet.
 
